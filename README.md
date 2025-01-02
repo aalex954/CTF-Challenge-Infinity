@@ -16,8 +16,7 @@ Two bits, you seek.
 There, truth lies.
 ```
 
-![challenge_infinity_image_final](https://github.com/user-attachments/assets/e81c7fd2-5b07-46c8-bbe1-b9988ddbe54e)
-
+![challenge_infinity_image_final](https://github.com/user-attachments/assets/a88684c9-44c0-48be-8a43-dbbeaf53d0eb)
 
 ## But Wait Theres More! ❗❗❗ Spoiler Alert❗❗❗   🔻🔻🔻🔻🔻🔻🔻🔻🔻🔻
 
